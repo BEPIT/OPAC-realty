@@ -1,2 +1,5 @@
 # Welcome to OPAC realty
-# Contact: 02 9570 2777
+# The website is under construction. 
+# Please contact us for help:
+# Email: Sales@opacrealty.com.au
+# Tel: 02 9570 2777
