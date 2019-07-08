@@ -2,4 +2,4 @@
 # The website is under construction.
 # Please contact us for help:
 # Email: Sales@opacrealty.com.au
-# Tel: 02 9570 2777
+# Tel: 02 95702777
